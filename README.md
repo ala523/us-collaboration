@@ -10,7 +10,7 @@ We will take jobs in upwork together and I do development on my computer and you
 
 You will need to help me for an hour per day.
 
-I will give 30% for your assistance. It will be minimal 500$ per week.
+I will give 30% for your assistance. It will be minimal 500$ per week it will be more than 2.5K in a month.
 
 If you have a spare computer and are interested in, please contact me via Telegram.
 
