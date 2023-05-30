@@ -2,11 +2,6 @@
 
 Hello Sir, how are you?
 
-My name is Modiu Ruis and I am from Mexico
-This is my Upwork and LinkedIn profile.
-https://www.upwork.com/freelancers/~01b3d2d49a65a6b08b
-https://www.linkedin.com/in/modiu-ruis-684137277/
-
 I would like to take jobs in upwork.com with my web dev skills and your call support together.
 
 There are many cool clients in upwork but there are many world-wide developers and most of the clients are hiring US only developers.
